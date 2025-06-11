@@ -1,0 +1,1 @@
+# Indian-Stock-trading-Fundamentals
